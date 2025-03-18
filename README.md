@@ -1,5 +1,5 @@
 👋 Hi, I’m Sadit Khan (@SaditKhan62)  
-🚀 **Aspiring Business & Tech Innovator | AI & Data Enthusiast
+🚀 Aspiring Business & Tech Innovator | AI & Data Enthusiast
 
 👀 I’m interested in:  
 - Business strategy, creative problem-solving, and technology  
