@@ -18,7 +18,7 @@
 - Creative projects involving branding, tech, and automation  
 
 📫 How to reach me:  
-- LinkedIn: [Sadit Khan](https://www.linkedin.com/in/sadit-khan-1816121)  
+- LinkedIn: [Sadit Khan](www.linkedin.com/in/sadit-khan)  
 - GitHub: [@SaditKhan62](https://github.com/SaditKhan62)  
 
 😄 Pronouns:  
